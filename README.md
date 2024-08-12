@@ -1,2 +1,2 @@
 # chenagain
-Don't judge me--I'm not a book.
+Don't judge the book, cover it.
